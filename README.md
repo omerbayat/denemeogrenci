@@ -1,0 +1,2 @@
+# denemeogrenci
+denemeogrencı
